@@ -10,7 +10,7 @@ here's what you can know about me
   
 - 💬 Ask me about my data analysis projects, my learning journey, or anything related to the world of data! I'm always eager to discuss and share knowledge.
 
-- 📫 You can reach me via email at ayushilenin23@gmail.com. Connect with me on LinkedIn: https://www.linkedin.com/in/ayushi-kaushik-053320264/, or connect with me on Instagram @ayushileninkaushik
+- 📫 You can reach me via email at ayushilenin23@gmail.com. Connect with me on LinkedIn:(https://www.linkedin.com/in/ayushiiieee23), or connect with me on Instagram @yourmommassfavourite
   
 - 😄 Pronouns: She/Her
   
